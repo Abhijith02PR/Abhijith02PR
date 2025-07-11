@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **in bridgeon**
 
-- 📫 How to reach me **abhijithpr@gmail.com**
+- 📫 How to reach me **abhijithpr366@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
